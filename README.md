@@ -2,7 +2,7 @@ fxd- 👋 Hi, I’m @aberzovl
 - 👀 I’m interested in ...fdvf
 - 🌱 I’m currently learning ...kl;'
 - 💞️ I’m looking to collaborate on ...ubhlknj;l;,
-- 📫 How to reach me ...vcjblknl/
+- 📫 How to reach me ...vcjblknl/dcd
 liugjk
 <!---
 aberzov/aberzov is a ✨ special ✨ repository because ijknts `README.md` (this file) appears on your GitHub profile.
